@@ -1,1 +1,0 @@
-# Rokuro-Khols_Admin_House_NBC-Script
